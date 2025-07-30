@@ -25,7 +25,7 @@ These schools are internationally recognised and accept international applicants
 
 ---
 
-### 🎓 Our Free Services
+### 🎓 Our Services
 
 Desire2Study offers complete support with:
 
