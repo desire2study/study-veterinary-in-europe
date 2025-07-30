@@ -41,7 +41,7 @@ Desire2Study offers complete support with:
 
 ➡️ **Visit our website**: [Desire2Study.com](https://desire2study.com)  
 📞 **Book a free consultation**: +44 7704 278 154  
-📩 **Email us**: hello@desire2study.com
+📩 **Email us**: ania@desire2study.com
 
 ---
 
